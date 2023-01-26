@@ -9,6 +9,12 @@
 2. Identificación de fuentes de información
 3. Creación de una wiki informativa de lo investigado: organizador gráfico(cuadro sinóptico) o resumen
 
+Integrantes: 
+* *_Mariangel Rojas_*
+* *_Steveen Cuenca_*
+
+Grupo #2
+
 ### Grupos
 
 * Grupo 01
